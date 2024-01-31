@@ -1,0 +1,1 @@
+# Computaci-n-de-prop-sito-general-en-unidades-de-procesamiento-grafico.-
